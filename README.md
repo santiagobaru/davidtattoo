@@ -1,2 +1,0 @@
-# davidtattoo
-Tattoo Studio - David
